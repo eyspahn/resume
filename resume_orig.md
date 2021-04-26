@@ -1,4 +1,4 @@
-TESTING EDITING THIS Jack Senechal
+Jack Senechal
 =============
 
 Located in San Francisco, CA  
